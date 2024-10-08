@@ -1,0 +1,1 @@
+oa, segun estudio computacion
